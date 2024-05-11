@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on the Human Hive
 - 📫 How to reach me ...
-- 😄 Pronouns: He
+- 😄 Pronouns: Him
 - ⚡ Fun fact: idk ⚡💞️👀 🌱 👋😄📫
 
 Love is the key
